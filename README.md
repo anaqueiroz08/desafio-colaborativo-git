@@ -6,4 +6,4 @@
 |------|------|
 | GitHub | https://github.com/eduardaciintra |
 | Instagram | @eduardaciintra |
-| E-mail | mariaeduardacintra2010@gmail.com |
+| E-mail | eduardaciintra@gmail.com |
